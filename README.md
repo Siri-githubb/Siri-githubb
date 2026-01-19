@@ -1,4 +1,4 @@
-# Hi, I'm Siri Chandana
+# Hi, I'm Annamdevula Siri Chandana
 
 B.Tech 3rd Year Mechanical Student  
 IIT Bhubaneswar  
